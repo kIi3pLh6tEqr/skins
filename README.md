@@ -1,6 +1,5 @@
 # skins
 All my osu! skins
-https://i.ibb.co/RDZhDcw/screenshot102.jpg
 
 <br>
 
