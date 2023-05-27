@@ -15,7 +15,7 @@ All my osu! skins
 
 
 # [aristia + bocchi the rock](https://cdn.discordapp.com/attachments/880413183347687518/1110615784587268136/-_BOCCHI_BOCCHI.osk)
-
+![](https://i.ibb.co/881nMWc/screenshot104.jpg)
 
 
 #
